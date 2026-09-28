@@ -1,1 +1,1 @@
-k
+Trabajo Realizado por el mejor delegado de Institut Francesc Vidal i Barraquer, Tarragona, Tarragones, Catalunya, Espanya, UE, Europa, Tratado del Atlántico Norte, Tratado de Versalles, SATO, ONU,MUNDO.
